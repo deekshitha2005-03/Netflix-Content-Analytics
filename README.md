@@ -168,7 +168,7 @@ Cast Analysis.png
 
 **Deekshitha Uppu**
 
-Final Year B.Tech (Computer Science & Engineering)
+ (Computer Science & Engineering)
 
 📧 Email: deekshithauppu412gmail.com
 
